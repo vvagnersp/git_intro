@@ -1,1 +1,2 @@
 Spencer Wagner
+wagnersp@oregonstate.edu
